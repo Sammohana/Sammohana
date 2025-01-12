@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Sammohana
+- 👀 I’m interested in computer and sociology
+- 🌱 I’m currently learning C, machine learning 
+- 💞️ I’m looking to collaborate on everything 
+- 😄 Pronouns: he/him
